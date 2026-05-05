@@ -1,3 +1,0 @@
-# Placeholder
-
-Temporario, sera substituido.
